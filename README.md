@@ -1,1 +1,0 @@
-# DynevoWebTraning-Volha_Alkhovik-
